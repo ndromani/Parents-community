@@ -16,7 +16,7 @@ Make proposals on fun educational activities and projects beyond the school.
 #PROPOSAL:
 1. Exchange views on key topics and not easy to tackle educational questions
 
-
+<img width="486" alt="image" src="https://user-images.githubusercontent.com/118807791/228792912-26db0b3d-424e-4813-89f3-2d44b5afb4cf.png">
 
 
 2. Engage with the teachers and kids on possible ways to approach those topics & questions
