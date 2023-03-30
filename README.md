@@ -21,12 +21,17 @@ Make proposals on fun educational activities and projects beyond the school.
 
 2. Engage with the teachers and kids on possible ways to approach those topics & questions
 3. Make proposals on educational activities and projects through play.
+
 <img width="514" alt="image" src="https://user-images.githubusercontent.com/118807791/228793436-486cf272-cde4-4a03-a8df-3486bb56a2fc.png">
+
 
 <img width="543" alt="image" src="https://user-images.githubusercontent.com/118807791/228793488-e3cebfe1-a875-4e62-b1d7-35116826bb83.png">
 
+
 <img width="572" alt="image" src="https://user-images.githubusercontent.com/118807791/228793309-de49cc61-50c8-4f35-af66-313832ba319c.png">
 
+
 <img width="552" alt="image" src="https://user-images.githubusercontent.com/118807791/228793540-ab25748a-56aa-4126-9568-64ae05d82660.png">
+
 
 <img width="552" alt="image" src="https://user-images.githubusercontent.com/118807791/228793653-af229674-904b-4ea8-b865-a73fe117b713.png">
