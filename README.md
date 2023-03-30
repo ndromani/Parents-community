@@ -1,2 +1,2 @@
 # Parents-community
-Develop a community amongst school parents of the same class, who would like to engage with the education of their kids
+Build a collaborative community amongst elementary school parents that promotes dialogue on educational topics and gives kids a voice
